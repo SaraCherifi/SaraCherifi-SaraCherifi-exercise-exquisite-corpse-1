@@ -10,3 +10,7 @@ Il a d'heureux garde-boues
 J'ai passé la première  
 Je vais rouler comme un fou  
 
+L'un t'éclaire avec son ardeur,  
+L'autre en toi met son deuil, Nature !  
+Ce qui dit à l'un : Sépulture !  
+Dit à l'autre : Vie et splendeur !
